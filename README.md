@@ -8,9 +8,7 @@
 
 **Minecraft Plugin Developer** · Java · Folia · NMS & Packets
 
-Full-Stack (HTML · CSS · JS · Python) · Cross-Server Systems · AI
-
-[`Portfolio`](https://asyncstudios.online/qdhshamiro/) · [`Discord`](https://discord.gg/WbXD2kVjY6)
+16 y/o · Founder of Async Studios · Plugins & server setups[`Portfolio`](https://asyncstudios.online/qdhshamiro/) · [`Discord`](https://discord.gg/WbXD2kVjY6)
 
 <br>
 
